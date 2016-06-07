@@ -9,3 +9,5 @@
 池辺吉博『債権回収の進め方』（日経文庫，2006年）  
 
 淵辺善彦『契約書の見方・つくり方』（日経文庫，2012年）
+
+Eva Doman Bruckほか『Business and Legal Forms for Graphic Designers』（Allworth Press; 1 edition (July 1, 2013)）
